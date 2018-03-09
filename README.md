@@ -1,0 +1,1 @@
+# suyabatmazz.github.io
